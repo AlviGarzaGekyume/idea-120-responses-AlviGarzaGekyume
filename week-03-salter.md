@@ -1,9 +1,9 @@
 # **Conemporary Tools Used to Make** ***Gesamtkunstwerk*** **Art**
 
 For starters I believe it would best to define the term Gesamtkunstwerk. 
-Gesamtkunstwerk means a total work of art, in mnay cases which can be comprehended and applied in many different ways to each individual. 
-With that in mind, there is a wide variety of contemporrary tools that can be used to create such art that can be digital or physical.
-Many current day arts use many elements used in the past to create such art for people today, weather it may be through music, live performance, cinema and many other ways. 
+Gesamtkunstwerk means a total work of art, in many cases which can be comprehended and applied in many different ways to each individual. 
+With that in mind, there is a wide variety of contemporary tools that can be used to create such art that can be digital or physical.
+Many current day arts use many elements used in the past to create such art for people today, whether it may be through music, live performance, cinema and many other ways. 
 One play that I was fortunate to expereince in my high school AP class was a play about the Tiananmen Square, which used many elements from sound, smell, music, lighting, and many other techniques.
 These techniques used allowed for me and others in the audience to be drawn in to what was happening and give a live recreation of what occured in Tiananmen Square in 1989. 
 
