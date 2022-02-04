@@ -16,4 +16,7 @@ This image being viewed on Live News on TV would be read very differently.
 The image appearing on the news would pose concerns for those who are investing in Activision or those supporting Activision in some way.
 It can lead people to thinking lawsuits, mistreatment of workers (men and women), or even some sort of toxic work environment towards women. 
 When it comes understanding an image, Barthes believed there to be 3 messages within an image. 
-These 3 messages are; 1.
+These 3 messages are; 1. Linguistic Message, 2. Coded Iconic Message, 3. Non-coded Iconic Message. 
+In this case the linguistic message would be concerning activists/protest.
+The coded iconic image would be the knowdledge of the type of toxic work enviornments gaming companies can be, especially towards the mistreatment of female workers.
+The non-coded iconic image would just be seeing the image as a protest for female workers within Activison Blizzard, wanting proper and equal work enviornment. 
