@@ -12,3 +12,5 @@ The fact that others make profit off of this and that there hasn't been more exp
 I know there is a woman named Carole Cadwallader who tried to expose the harm Facebook poses and other media outlets and how they try to intimidate her with lawsuits and threats. 
 Another person who writes about these issues and states this things is Van Dijck, who also explains how Facebook has manipulated terms such as friend, like, dharing, and privacy.
 Those terms were changed to benefit Facebook and other big coporations, and allow them to do things that are wrong and avoid legal action against them.
+As for Birdle's vision I believe just as he does that getting rid of this systematic and automated ways the internet and data are being used against ourselves.
+Also, having media's have more depth analysis into accounts and see if they are legitament or not would help a lot, and not giving out verified account statuses left and right.
