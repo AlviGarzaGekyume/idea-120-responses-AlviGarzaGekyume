@@ -10,3 +10,5 @@ I have also been guilty for filling out surveys on various social media sites as
 I feel like some of these ad methods would be useful in keeping because some will help people out while I believe others will abuse it.
 For example maybe looking for a new internet provider online, may provide you with a better service provider with a better price or one that is more reliable! 
 I feel it just depends who is using these methods and who they are targeting. 
+I feel that if we lose these ad methods people may complain if they can't find what they are looking for, many ads can provide reccomendations and lead people to sites in which they can probably find what they are looking for at a faster rate. 
+I also feel that it should be something we are all used to and having it removed may feel weird to many sites we use daily. 
